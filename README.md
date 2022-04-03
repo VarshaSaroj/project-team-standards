@@ -1,2 +1,3 @@
 # project-team-standards
-Normal knowledge 
+Normal knowledge
+"C:\Users\Hp\OneDrive\Presentation team standared.pptx"
