@@ -1,3 +1,3 @@
 # project-team-standards
 Normal knowledge
-"C:\Users\Hp\OneDrive\Presentation team standared.pptx"
+https://1drv.ms/p/s!AuAWaBIbD0-8gQSMwjlWTXhREIm1
